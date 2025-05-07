@@ -1,0 +1,1 @@
+# memorial-hp-static
